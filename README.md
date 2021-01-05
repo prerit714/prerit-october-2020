@@ -1,3 +1,3 @@
 # prerit-october-2020
 
-Just give me some credits :)
+Don't forget to give me some credit :)
